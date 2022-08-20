@@ -1,1 +1,1 @@
-it was difficul
+it was difficult, but i enjoyed it
